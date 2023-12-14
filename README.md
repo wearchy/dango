@@ -1,4 +1,4 @@
-# Dango
+# Dango　(-ooo-)
 
 This is your story.
 
